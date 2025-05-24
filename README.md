@@ -10,7 +10,7 @@
 
 <p>Il nostro <strong>generatore di risorse per RAID Shadow Legends</strong> ti consente di aggiungere istantaneamente al tuo account tutte le risorse necessarie per avanzare rapidamente nel gioco. Grazie a una semplice interfaccia, potrai scegliere la quantità di risorse desiderata e vederle comparire sul tuo profilo in pochi minuti.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per RAID Shadow Legends](https://tinyurl.com/CampionePalmare)** 🔴🔴
+# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per RAID Shadow Legends](https://tinyurl.com/GiochiOnTheGo)** 🔴🔴
 
 <p>Ecco cosa potrai ottenere:</p>
 
@@ -108,4 +108,4 @@ Sì, i trucchi sono compatibili sia con Android che con iOS, anche senza jailbre
 
 <p>Non aspettare che sia troppo tardi. Clicca ora sul pulsante qui sotto e rivoluziona la tua esperienza su RAID Shadow Legends con risorse illimitate gratuite. È semplice, sicuro e funziona davvero!</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per RAID Shadow Legends](https://tinyurl.com/CampionePalmare)** 🔴🔴
+# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per RAID Shadow Legends](https://tinyurl.com/GiochiOnTheGo)** 🔴🔴
